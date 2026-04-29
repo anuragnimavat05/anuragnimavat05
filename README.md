@@ -2,7 +2,7 @@
 
 👋 Hi, I'm **Anurag Nimavat**
 
-💻 Android Developer | 🔐 Cybersecurity Enthusiast | 📍 Ahmedabad, India
+💻 Android Developer | 🔐 Cybersecurity Enthusiast | 📍 Junagadh, India
 
 ---
 
